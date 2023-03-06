@@ -1,1 +1,1 @@
-![Design sem nome (1)](https://user-images.githubusercontent.com/54338596/223219025-e86529f7-881c-4ea9-a6ee-03fa07cd2668.png)
+![Design sem nome](https://user-images.githubusercontent.com/54338596/223266426-a230ff02-cb44-4e71-af5b-9ed4928e6aab.png)
