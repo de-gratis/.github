@@ -1,1 +1,1 @@
-![conhecimento de grátis](https://user-images.githubusercontent.com/54338596/223212509-7dbddfb6-0ae2-4c35-81d9-b452640d6424.png)
+![Design sem nome](https://user-images.githubusercontent.com/54338596/223217538-94786ffa-9c4a-4245-808f-14830187c8e7.png)
